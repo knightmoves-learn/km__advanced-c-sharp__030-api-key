@@ -2,8 +2,7 @@
 
 ## Lecture
 
-NO VIDEO ON YOUTUBE YET
-[![# Api Key](https://img.youtube.com/vi/RTUTtORZ8nM/0.jpg)](https://www.youtube.com/watch?v=RTUTtORZ8nM)
+[![# Api Key](https://img.youtube.com/vi/soczuamHU6M/0.jpg)](https://www.youtube.com/watch?v=soczuamHU6M)
 
 ## Instructions
 
